@@ -1,4 +1,4 @@
-Yan Ad'vincula Trindade
+Yan Ad'vincula Trindade🏄‍♂️
 
 
 Estudante do curso de Desenvolvimento de Sistemas na Escola SENAI de Informática
@@ -17,4 +17,4 @@ Languages
 
 
 
-                                                                      🏄‍♂️🏄‍♂️
+                                                                      
